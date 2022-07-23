@@ -1,0 +1,2 @@
+# bilmiyom-
+Ne 
